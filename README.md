@@ -4,26 +4,6 @@
 
 # https://discord.gg/fMQZuX7P64 | Discord Hada Development
 
-
-
-
-
-
-
->Hada/<
-
-
-
-
-
-
-
-
-
-
-
-
 > VIRUS STAFF UP
-
 
 > python It's my life
